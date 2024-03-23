@@ -30,4 +30,4 @@ This course covers a broad spectrum of Applied Mathematics, equipping students w
 ## Contact for Consultation
 If you are an educator or administrator interested in integrating GPT or other AI/ML tools to enhance teaching effectiveness and curriculum quality, or if you aim to improve student learning outcomes while navigating the challenges associated with AI tools, I invite you to reach out for a consultation. 
 
-Whether you're looking to prevent the misuse of AI for "cheating" or to simply elevate the educational experience, connect with me on [Linkedin](https://www.linkedin.com/in/brett-hans-mcmurdy/). I offer a flat rate of $250 for a full day's consultation or $8,000 for a comprehensive course design, deliverable within 4 weeks.
+Whether you're looking to prevent the misuse of AI for "cheating" or to simply elevate the educational experience, connect with me on [Linkedin](https://www.linkedin.com/in/brett-hans-mcmurdy/). I offer a flat rate of $250 for a full day, remote or on-site consultation (plus any travel costs) or $8,000 for a comprehensive course design, deliverable within 4 weeks.
